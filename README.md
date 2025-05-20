@@ -8,5 +8,5 @@
 - Thank you for your time, I'm A Hair stylist too.
 - Message the number above 
 Love Y'all 😘 
-Kbstar442/Kbstar442 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
+Live Free, Love More
+Kbstar442
